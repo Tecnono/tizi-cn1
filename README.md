@@ -4,7 +4,7 @@
 
 **如果在你平时的工作生活中，使用手机电脑的频率比较高，并且目前还在网上向网友求一个vpn梯子上外网，那么这六款稳定好用的PC电脑梯子一定能帮你解决当下的燃眉之急。这几款科学魔法梯子软件都是尤里自己用过且真正[稳定好用的机场](https://alipjj.github.io/SSR-V2Ray-Trojan/)，大家可以放心尝试。**
 
-![VPN梯子](https://github.com/TOP-VPN/vpntuijian/assets/173128277/7a72ecd7-9af6-4cb4-bd08-67ce042683cf)
+![VPN梯子](https://www.cnvintage.org/assets/files/2025-02-22/1740202909-490703-f0df4798-002b-4a93-943f-b403208f18d1.png)
 
 -----
 ## 一、尔湾云 2025最新便宜好用的机场推荐
